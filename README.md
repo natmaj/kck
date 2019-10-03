@@ -1,1 +1,1 @@
-# kck
+# dupa jasiu
